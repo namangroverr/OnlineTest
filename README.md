@@ -1,2 +1,2 @@
-Online Test can an organisation held.
+Online Test can be held by an organisation
 MCQ Pattern Questions and Answers are take place.
